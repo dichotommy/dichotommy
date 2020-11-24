@@ -1,5 +1,9 @@
-### Hi there 👋
+### Greetings, fellow traveler!
 
+I am:
+- a writer :writing_hand:
+- a ~~gamer~~game developer :video_game:
+- a lover of organized and disorganized sounds :drum: :headphones:
 <!--
 **react-learner/react-learner** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
