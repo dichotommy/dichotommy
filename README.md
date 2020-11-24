@@ -1,4 +1,4 @@
-### Why, hello there! :raising_hand_man:
+### Oh, hello! :raising_hand_man: I almost didn't see you there! :see_no_evil:
 
 I don't know what brings you to my humble profile, but I hope you enjoy your stay. To get started, here's a little bit about me.
 
