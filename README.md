@@ -1,7 +1,7 @@
 ### Oh, hello! :raising_hand_man: I almost didn't see you there! :see_no_evil:
 
-I don't know what brings you to my humble profile, but I hope you enjoy your stay. To get started, here's a little bit about me.
-
+I don't know what brings you to my humble profile, but I hope you enjoy your stay.
+While you're getting settled, why don't I tell you a little bit about myself?
 I am:
 - a writer :writing_hand:
 - a ~~gamer~~ game developer :video_game:
