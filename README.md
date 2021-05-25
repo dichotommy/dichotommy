@@ -6,7 +6,7 @@ While you're getting settled, why don't I tell you a little bit about myself? I 
 
 - a writer (technical/content/narrative/poetry) :writing_hand:
 - an expat (AKA an immigrant, but from a fancy country) 🇺🇸 🇧🇪 🇫🇷
-- a ~~gamer~~ game designer :video_game:
+- a ~~gamer~~ game designer ♟️ :video_game:
 - a lover of organized and disorganized sounds :drum: :headphones:
 
 I mainly use this account to manage MeiliSearch's fabulous [documentation](https://github.com/meilisearch/documentation) :book:
