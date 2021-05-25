@@ -2,9 +2,8 @@
 
 I don't know what brings you to my humble profile, but I hope you enjoy your stay.
 
-While you're getting settled, why don't I tell you a little bit about myself?
+While you're getting settled, why don't I tell you a little bit about myself? I am:
 
-I am:
 - a writer (technical/content/narrative/poetry) :writing_hand:
 - an expat 🇺🇸 🇧🇪 🇫🇷 (note: "expat" means "immigrant", but fancier 😬)
 - a ~~gamer~~ game designer :video_game:
