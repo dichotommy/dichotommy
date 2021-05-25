@@ -5,7 +5,7 @@ I don't know what brings you to my humble profile, but I hope you enjoy your sta
 While you're getting settled, why don't I tell you a little bit about myself? I am:
 
 - a writer (technical/content/narrative/poetry) :writing_hand:
-- an expat 🇺🇸 🇧🇪 🇫🇷 (note: "expat" means "immigrant", but fancier 😬)
+- an expat (AKA an immigrant, but from a fancy country) 🇺🇸 🇧🇪 🇫🇷
 - a ~~gamer~~ game designer :video_game:
 - a lover of organized and disorganized sounds :drum: :headphones:
 
