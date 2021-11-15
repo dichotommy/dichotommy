@@ -1,4 +1,4 @@
-### Oh, hello traveler! :raising_hand_man:
+### Oh, hello traveler! 🧙‍♂️
 
 We don't get too many like you in these parts. Come, lay down your sword and warm yourself by the fire—as a treat, I'll even tell you a little bit about myself. I am known to some as a:
 
