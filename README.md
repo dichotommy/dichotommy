@@ -4,7 +4,7 @@ We don't get too many like you in these parts. Come, lay down your sword and war
 
 - writer (technical/content/narrative/poetry) :writing_hand:
 - ~~gamer~~ game designer/developer ♟️ :video_game:
-- expat (AKA an immigrant, but from a fancy country) 🇺🇸 🇧🇪 🇫🇷
+- expat (in other words, an immigrant from a fancy country) 🇺🇸 🇧🇪 🇫🇷
 - lover of organized and disorganized sounds :drum: :headphones:
 
 But these days, I use this account to manage MeiliSearch's [documentation](https://github.com/meilisearch/documentation) :book:
