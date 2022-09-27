@@ -4,4 +4,4 @@ I love stories, especially the science-fiction and fantasy genres. My goal is to
 
 These days I'm particularly interested in anything that helps me understand myself and the world better, including psychology, physiology, cosmology, astrophysics, history, astrology, and wellness practices.
 
-Hobbies include music, ultimate frisbee, dance, and gaming.
+Hobbies include music 🪘 ultimate frisbee 🥏 dance 🕺 and gaming 🎮
